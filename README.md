@@ -4,8 +4,8 @@ We are trying to write this together as a group
 
 ## Happies
 
-- seeing everybody on campus is fun
+- I have really enjoyed my bowling class so far.
 
 ## Crappies
 
-- being in a classroom at 8 is ... tough
+- All of my classes start very early in the morning and I am not a morning person.

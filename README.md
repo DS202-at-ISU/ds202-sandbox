@@ -5,7 +5,9 @@ We are trying to write this together as a group
 ## Happies
 
 - seeing everybody on campus is fun
+- Fun class schedule, good professors
 
 ## Crappies
 
 - being in a classroom at 8 is ... tough
+- Early morning classes

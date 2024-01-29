@@ -4,8 +4,8 @@ We are trying to write this together as a group
 
 ## Happies
 
-- seeing everybody on campus is fun
+- sitting on the hub benches and watch everyone walk around is fun
 
 ## Crappies
 
-- Digging out a car from the snow in the parking lot at 10 Fahrenheit is hard
+- walking across ames in 5 layers of clothing on a windy -40F weather

@@ -13,3 +13,11 @@ We are trying to write this together as a group
 - Digging out a car from the snow in the parking lot at 10 Fahrenheit is hard
 - driving through a blizzard
 - I turned in an assignment 15 min late and got a 0 for it
+
+## Happies
+
+- talking to people is fun
+
+## Crappies
+
+- i am so tired already

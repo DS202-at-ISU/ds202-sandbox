@@ -1,15 +1,9 @@
-# Ode to an awesome advisor
-We are trying to write this together as a group
+# ds202-Meghasyam-Peddireddy
+ode to an academic advisor
+
+### A Crappy
+I had some class scheduling issues because of workday.
 
 
-## Happies
-
-- seeing everybody on campus is fun
-- playing minecraft
--  I got to play broomball last weekend and catch up with the guys
-
-## Crappies
-
-- Digging out a car from the snow in the parking lot at 10 Fahrenheit is hard
-- driving through a blizzard
-- I turned in an assignment 15 min late and got a 0 for it
+### A Happy
+I was able to get into the classes I want.

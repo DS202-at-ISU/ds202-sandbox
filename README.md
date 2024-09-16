@@ -4,6 +4,8 @@ We are trying to write this together as a group
 
 ## Happies
 
+- I'm excited to learn all about Data Science this semester
+
 - seeing everybody on campus is fun
 - playing minecraft
 -  I got to play broomball last weekend and catch up with the guys
@@ -12,6 +14,8 @@ We are trying to write this together as a group
 
 
 ## Crappies
+
+- Last week I slipped on ice on my way home from class
 
 - Digging out a car from the snow in the parking lot at 10 Fahrenheit is hard
 - driving through a blizzard

@@ -9,6 +9,7 @@ We are trying to write this together as a group
 -  I got to play broomball last weekend and catch up with the guys
 -  Made some new friends
 - Winning the Cyhawk game
+- I had the opportunity to work on research projects
 
 
 ## Crappies

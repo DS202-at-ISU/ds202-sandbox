@@ -9,9 +9,9 @@ We are trying to write this together as a group
 -  I got to play broomball last weekend and catch up with the guys
 -  Made some new friends
 - Winning the Cyhawk game
+- Getting to see my friends after the break
 - My school workload is really light right now.
 - Living with my friends
-
 
 
 ## Crappies
@@ -21,5 +21,6 @@ We are trying to write this together as a group
 - I turned in an assignment 15 min late and got a 0 for it
 - Got a sucky lab TA that ignores people (including the other TA)
 - Not being able to go to the Cyhawk game in person
+- Getting sick right after getting back from break
 - Iowa State basketball losing 4 of their last 6 games.
 - Having to cook for myself

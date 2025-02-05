@@ -10,6 +10,7 @@ We are trying to write this together as a group
 -  Made some new friends
 - Winning the Cyhawk game
 - Living with my friends
+- Fought a Bear
 
 
 ## Crappies
@@ -20,3 +21,4 @@ We are trying to write this together as a group
 - Got a sucky lab TA that ignores people (including the other TA)
 - Not being able to go to the Cyhawk game in person
 - Having to cook for myself
+- Bear fought me

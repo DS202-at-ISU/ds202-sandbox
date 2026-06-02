@@ -13,6 +13,8 @@ We are trying to write this together as a group
 - Living with my friends
 - The weather has been nice so far
 - Being on a schedule
+- More time to spend on baking again
+- Made some new friends while working
 
 
 
@@ -28,4 +30,6 @@ We are trying to write this together as a group
 - Having to cook for myself
 - I have to do a lot of readings for my classes
 - I have to write essays
+- Very hot weather outside/ Unpredictable weather changes
+- Develop projects to work on during the summer
 

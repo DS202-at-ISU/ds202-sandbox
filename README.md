@@ -13,6 +13,7 @@ We are trying to write this together as a group
 - Living with my friends
 - The weather has been nice so far
 - Being on a schedule
+- Just testing this
 
 
 
